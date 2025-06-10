@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **chandrasena217@gmail.com**
 
-- ⚡ Fun fact **I am not from a tech background but, I enjoy learning new things hmmm Data science is exciting...**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
